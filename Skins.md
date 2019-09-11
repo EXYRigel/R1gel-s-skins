@@ -15,6 +15,9 @@
 # [-+Dumii and Kyle+R1gel+edit](https://rigel.s-ul.eu/b8gH6cjR)
 ![](https://rigel.s-ul.eu/D2J9NgIk)
 
+# [Charlotte+v2](https://rigel.s-ul.eu/6BoEcild)
+![](https://i.imgur.com/qTCAPIw.jpg)
+
 # [auibruiebqiv](https://rigel.s-ul.eu/0BgXBPY0)
 ![](https://rigel.s-ul.eu/M9x29Dwf)
 
