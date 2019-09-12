@@ -3,7 +3,7 @@
 # [- ! # cacac](https://rigel.s-ul.eu/rr29iwhy)
 ![](https://rigel.s-ul.eu/CrndwoCH)
 
-# [- # R1gel v3.1](https://rigel.s-ul.eu/Oh871F2J)
+# [- # R1gel v3.1](https://rigel.s-ul.eu/9fc9H70z)
 ![](https://rigel.s-ul.eu/4ZBds3yb)
 
 # [-『Masno-Ni』- but its orange](https://rigel.s-ul.eu/pnxYO3Dq)
