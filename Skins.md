@@ -1,6 +1,11 @@
 # R1gel's skins
 
-# [- #Aoki [1.2] (qeotn).osk](https://rigel.s-ul.eu/VHYbAOdn)
+# Please remind me to upload if you see a skin that is not listed here.
+
+# [-      # owoTuna {1.4} 『ikaNyai』 #  edit](https://www.mediafire.com/file/30nt0p897pxvmdi/-______%23_owoTuna_%7B1.4%7D_%u300EikaNyai%u300F_%23__edit.osk/file)
+![](https://i.imgur.com/SVM1141.jpg)
+
+# [- #Aoki [1.2] (qeotn)](https://rigel.s-ul.eu/VHYbAOdn)
 ![](https://rigel.s-ul.eu/ay5uu69j)
 
 # [- ! # cacac](https://rigel.s-ul.eu/rr29iwhy)
@@ -9,10 +14,10 @@
 # [- # R1gel v3.1](https://rigel.s-ul.eu/9fc9H70z)
 ![](https://rigel.s-ul.eu/4ZBds3yb)
 
-# [-『Masno-Ni』- but its orange.osk](https://rigel.s-ul.eu/pnxYO3Dq)
+# [-『Masno-Ni』- but its orange](https://rigel.s-ul.eu/pnxYO3Dq)
 ![](https://rigel.s-ul.eu/MtcS3eoe)
 
-# [-+ Seoul v9 Personal Skin R1gel.osk](https://rigel.s-ul.eu/dkvVHhSe)
+# [-+ Seoul v9 Personal Skin R1gel](https://rigel.s-ul.eu/dkvVHhSe)
 ![](https://rigel.s-ul.eu/27aH3U2C)
 
 # [-+ Seoul mix](https://rigel.s-ul.eu/XIaauskd)
@@ -26,6 +31,9 @@
 
 # [auibruiebqiv](https://rigel.s-ul.eu/0BgXBPY0)
 ![](https://rigel.s-ul.eu/M9x29Dwf)
+
+# [SameSkinButHDWeirdNameJPN.](https://rigel.s-ul.eu/zeEPQU6H)
+![](https://i.imgur.com/YKjoyyS.jpg)
 
 # [SameSkinButMixedWeirdName](https://rigel.s-ul.eu/JacaWMDQ)
 ![](https://rigel.s-ul.eu/5CLhKwIs)
