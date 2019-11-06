@@ -1,6 +1,6 @@
 # R1gel's skins
 
-# Please remind me to upload if you see a skin that is not listed here.
+Please remind me to upload if you see a skin that is not listed here.
 
 # [-      # owoTuna {1.4} 『ikaNyai』 #  edit](http://www.mediafire.com/file/30nt0p897pxvmdi/-_%2523_owoTuna_%257B1.4%257D_%25E3%2580%258EikaNyai%25E3%2580%258F_%2523__edit.osk/file)
 ![](https://i.imgur.com/SVM1141.jpg)
