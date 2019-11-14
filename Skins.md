@@ -14,6 +14,9 @@ Please remind me to upload if you see a skin that is not listed here.
 # [- # R1gel v3.1](https://rigel.s-ul.eu/9fc9H70z)
 ![](https://rigel.s-ul.eu/4ZBds3yb)
 
+# [#azr8neww](http://www.mediafire.com/file/j7jv3j6ltdb3c4d/%2523azr8neww.osk/file)
+![](https://osu.ppy.sh/ss/14110666/d064)
+
 # [-『Masno-Ni』- but its orange](https://rigel.s-ul.eu/pnxYO3Dq)
 ![](https://rigel.s-ul.eu/MtcS3eoe)
 
@@ -26,8 +29,8 @@ Please remind me to upload if you see a skin that is not listed here.
 # [-+Dumii and Kyle+R1gel+edit](https://rigel.s-ul.eu/b8gH6cjR)
 ![](https://rigel.s-ul.eu/D2J9NgIk)
 
-# [Charlotte+v2](https://rigel.s-ul.eu/I7yPQZ0Q)
-![](https://osu.ppy.sh/ss/14075846/383e)
+# [Charlotte+v2z](http://www.mediafire.com/file/pccx7j3r3bxajgh/Charlotte%252Bv2z.osk/file)
+![](https://osu.ppy.sh/ss/14110667/0350)
 
 # [auibruiebqiv](https://rigel.s-ul.eu/0BgXBPY0)
 ![](https://rigel.s-ul.eu/M9x29Dwf)
