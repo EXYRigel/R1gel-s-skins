@@ -26,5 +26,5 @@ Updated as at 21.02.2020
 # [auibruiebqiv](https://rigel.s-ul.eu/0BgXBPY0)
 ![](https://rigel.s-ul.eu/M9x29Dwf)
 
-# [SameSkinButHDWeirdNameJPN.](https://rigel.s-ul.eu/83DaxCOy)
+# [SameSkinButHDWeirdNameJPN](https://rigel.s-ul.eu/k3x2KBSL)
 ![](https://i.imgur.com/MK7Nebw.jpg)
