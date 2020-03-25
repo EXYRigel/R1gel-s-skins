@@ -1,6 +1,6 @@
 # R1gel's skins
 
-Updated as at 21.02.2020  
+Updated as at 25.03.2020  
 
 # [- ! # cacac](https://rigel.s-ul.eu/6TIyxWTj)
 ![](https://i.imgur.com/7wRnK30.jpg)
