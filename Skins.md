@@ -9,7 +9,7 @@ Updated as at 25.03.2020
 ![](https://rigel.s-ul.eu/4ZBds3yb)
 
 # [- 『BlooMoon』x R1gel -](https://rigel.s-ul.eu/N8AMFaOU)
-![]https://osu.ppy.sh/ss/14661000/233c
+![](https://osu.ppy.sh/ss/14661000/233c)
 
 # [-+ Seoul v9 Personal Skin R1gel](https://rigel.s-ul.eu/2YvW7GN9)
 ![](https://i.imgur.com/m3WijFj.jpg)
