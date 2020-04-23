@@ -1,6 +1,6 @@
 # R1gel's skins
 
-Updated as at 25.03.2020  
+Updated as at 24.04.2020  
 
 # [- ! # cacac](https://rigel.s-ul.eu/6TIyxWTj)
 ![](https://i.imgur.com/7wRnK30.jpg)
@@ -8,7 +8,7 @@ Updated as at 25.03.2020
 # [- # R1gel v3.1](https://rigel.s-ul.eu/cfSxmgTR)
 ![](https://rigel.s-ul.eu/4ZBds3yb)
 
-# [- 『BlooMoon』x R1gel -](https://rigel.s-ul.eu/N8AMFaOU)
+# [- 『BlooMoon』x R1gel -](https://rigel.s-ul.eu/f7R86bVs)
 ![](https://osu.ppy.sh/ss/14661000/233c)
 
 # [-+ Seoul v9 Personal Skin R1gel](https://rigel.s-ul.eu/2YvW7GN9)
