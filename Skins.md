@@ -1,12 +1,12 @@
 # R1gel's skins
 
-Updated at 22.06.2020  
+Updated at 14.08.2020  
+
+# [-                # R1gel v3.2](https://rigel.s-ul.eu/0dALmMiF)
+![](https://rigel.s-ul.eu/RNtfudPv)
 
 # [- ! # cacac](https://rigel.s-ul.eu/6TIyxWTj)
 ![](https://i.imgur.com/7wRnK30.jpg)
-
-# [- # R1gel v3.1](https://rigel.s-ul.eu/cfSxmgTR)
-![](https://rigel.s-ul.eu/4ZBds3yb)
 
 # [- 『BlooMoon』x R1gel -](https://rigel.s-ul.eu/fJitSmtM)
 ![](https://i.imgur.com/0mlXUuC.jpg)
